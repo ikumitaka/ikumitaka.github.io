@@ -2,9 +2,11 @@
 
 - Name
   - 伊住汲高 (Kumitaka Izumi)
-  - 旧名義：白横町ねる (Neru Shirayokomati)
+  - 白横町ねる (Neru Shirayokomati)
 - Affiliation
   - 一般社団法人 MIVE-CINE･MARS
+
+***
 
 ## Novel
 
@@ -12,6 +14,8 @@
 1. "聖女追放　～私が去ったあとは病で国は大変なことになっているでしょう～", <ins>白横町ねる</ins>, （表紙絵）MOフ, Jan. 2021. [Everystar](https://estar.jp/novels/25772581)
 1. "戦いに敗れた勇者のわたしは魔王の秘書として働くことになりました。", <ins>白横町ねる</ins>, （表紙絵）おむ烈, Aug. 2020. [Kindle](https://www.amazon.co.jp/dp/B094RGNMV5)
 1. "腕輪の街、サクラギリシャ", <ins>白横町ねる</ins>, May 2020. [Everystar](https://estar.jp/novels/25643061)
+
+***
 
 ## Voice Drama
 
