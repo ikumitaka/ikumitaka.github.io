@@ -1,6 +1,4 @@
-# Kumitaka Izumi
-
-## Works
+## Kumitaka Izumi
 
 ### Voice Drama
 
