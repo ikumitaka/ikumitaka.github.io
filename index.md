@@ -23,6 +23,19 @@
 
 ## Voice Drama
 
+1. "金色の天秤", <ins>白横町ねる</ins>, （魔女A役）ごま豆乳, （魔女B役）柊木こよみ, 白横町ねるボイスドラマシリーズ, vol. 3, no. 4, Feb. 2022. [Spotify](https://open.spotify.com/episode/6NGuZqIOZGGiS6cMxkGezw)
+1. "リラックスタイム", <ins>白横町ねる</ins>, （魔女A役）みもざねむ, （魔女B役）藤村莉央, 白横町ねるボイスドラマシリーズ, vol. 3, no. 2, Feb. 2022. [Spotify](https://open.spotify.com/episode/2mvoNwR312sWbtIGyn9RPi)
+1. "静かなること", <ins>白横町ねる</ins>, （魔女A役）みもざねむ, （魔女B役）柊木こよみ, 白横町ねるボイスドラマシリーズ, vol. 3, no. 6, Feb. 2022. [Spotify](https://open.spotify.com/episode/1pyYzYQzTbbLssEq2hBJJQ)
+1. "秘術たる理由", <ins>白横町ねる</ins>, （魔女A役）ごま豆乳, （魔女B役）柊木こよみ, 白横町ねるボイスドラマシリーズ, vol. 3, no. 7, Feb. 2022. [Spotify](https://open.spotify.com/episode/3PL6kToBfDM3lEgOGk5TvT)
+1. "結び付ける力", <ins>白横町ねる</ins>, （魔女A役）ごま豆乳, （魔女B役）藤村莉央, 白横町ねるボイスドラマシリーズ, vol. 3, no. 3, Jan. 2022. [Spotify](https://open.spotify.com/episode/59BCMLSvV0ieHpvJzhCfjq)
+1. "透明の未来", <ins>白横町ねる</ins>, （魔女A役）鳴坂みあ, （魔女B役）えもこ, 白横町ねるボイスドラマシリーズ, vol. 3, no. 12, Jan. 2022. [Spotify](https://open.spotify.com/episode/5pHmrp6Y0RD5gB64VFPScy)
+1. "選択の刻", <ins>白横町ねる</ins>, （魔女A役）ごま豆乳, （魔女B役）藤村莉央, 白横町ねるボイスドラマシリーズ, vol. 3, no. 8, Jan. 2022. [Spotify](https://open.spotify.com/episode/7KShfnchvGAT4PVArOo08y)
+1. "北風と太陽", <ins>白横町ねる</ins>, （魔女役）麻倉ひよこ, 白横町ねるボイスドラマシリーズ, vol. 3, no. 10, Nov. 2021. [Spotify](https://open.spotify.com/episode/44PPpkH9Bv1P1jfkjZkLek)
+1. "明日の自分を夢見て", <ins>白横町ねる</ins>, （魔女役）瀬戸ちとせ, 白横町ねるボイスドラマシリーズ, vol. 3, no. 9, Nov. 2021. [Spotify](https://open.spotify.com/episode/3617otRvvl0OUiUran4uco)
+1. "エピローグ", <ins>白横町ねる</ins>, （魔女役）ゆね, 白横町ねるボイスドラマシリーズ, vol. 2, no. 13, Nov. 2021. [Spotify](https://open.spotify.com/episode/5MXdBGG3KYw0kSaIm473U6)
+1. "群咲きの夢", <ins>白横町ねる</ins>, （皇帝役）浅見ゆい, （少女A役）藤堂れんげ, （少女B役）鳴坂みあ, 白横町ねるボイスドラマシリーズ, vol. 2, no. 12, Sep. 2021. [Spotify](https://open.spotify.com/episode/5B1KOrigj3JWhAgbJpvLlt)
+1. "琥珀色の頽廃", <ins>白横町ねる</ins>, （孫娘役）hana10, （生徒役）姫桜りりか, （教師役）イヅカ, 白横町ねるボイスドラマシリーズ, vol. 2, no. 5, Sep. 2021. [Spotify](https://open.spotify.com/episode/7vIadTgct0euKcb6DgtDly)
+1. "黄色い傘", <ins>白横町ねる</ins>, （女児役）真城かな, （先生役）如月彩葉, 白横町ねるボイスドラマシリーズ, vol. 2, no. 7, Aug. 2021. [Spotify](https://open.spotify.com/episode/366Ybjthx02grUmFvyy5F4)
 1. "金毛の九尾", <ins>白横町ねる</ins>, （少女役）夜宵紫苑, （狐役）藤堂れんげ, 白横町ねるボイスドラマシリーズ, vol. 2, no. 10, Aug. 2021. [Spotify](https://open.spotify.com/episode/6pUfJ2FWn1CAZ2pFAFDBJb)
 1. "塩の悪魔", <ins>白横町ねる</ins>, （悪魔役）相澤めり, （妹役）ゆね, 白横町ねるボイスドラマシリーズ, vol. 2, no. 1, Aug. 2021. [Spotify](https://open.spotify.com/episode/31ztSkhWxpWQgMgJuCznYY)
 1. "深き森の異形", <ins>白横町ねる</ins>, （少女A役）夜宵紫苑, （少女B役）如月彩葉, 白横町ねるボイスドラマシリーズ, vol. 2, no. 3, Jul. 2021. [Spotify](https://open.spotify.com/episode/7mXCnl1wyAt3WGhHRsiGll)
@@ -32,7 +45,7 @@
 1. "聖なる透明の雫", <ins>白横町ねる</ins>, （シスター役）如月彩葉, （少女役）金山華奈, 白横町ねるボイスドラマシリーズ, vol. 2, no. 8, Jun. 2021. [Spotify](https://open.spotify.com/episode/4KcqG76yWZsQDncgbY8Tf9)
 1. "神さまの憂鬱", <ins>白横町ねる</ins>, （OL役）倉浪あお, （神様役）姫桜りりか, 白横町ねるボイスドラマシリーズ, vol. 2, no. 9, Jun. 2021. [Spotify](https://open.spotify.com/episode/6tckPCHhJvvpnHdWz065gG)
 1. "やがて土塊に還る国", <ins>白横町ねる</ins>, （王女A役）イヅカ, （王女B役）ゆね, 白横町ねるボイスドラマシリーズ, vol. 2, no. 4, May 2021. [Spotify](https://open.spotify.com/episode/0EBhyydUzj1Kxg9HLVQPIJ)
-1. "エピローグ", <ins>白横町ねる</ins>, （魔女役）ゆね, 白横町ねるボイスドラマシリーズ, vol. 13, no. 1, Apr. 2021. [Spotify](https://open.spotify.com/episode/4tXUi4aHiYhR2VFs7dxaI3)
+1. "エピローグ", <ins>白横町ねる</ins>, （魔女役）ゆね, 白横町ねるボイスドラマシリーズ, vol. 1, no. 13, Apr. 2021. [Spotify](https://open.spotify.com/episode/4tXUi4aHiYhR2VFs7dxaI3)
 1. "語り継がれる話", <ins>白横町ねる</ins>, （家庭教師役）殊座, （王女役）藤堂れんげ, 白横町ねるボイスドラマシリーズ, vol. 1, no. 1, Apr. 2021. [Spotify](https://open.spotify.com/episode/0oMk7VrKOl1eDnW0Hn7yUM)
 1. "因果逆転", <ins>白横町ねる</ins>, （旅人B役）常盤はなこ, （旅人A役）殊座, （露天商役）藤堂れんげ, 白横町ねるボイスドラマシリーズ, vol. 1, no. 8, Apr. 2021. [Spotify](https://open.spotify.com/episode/2UIvPmOZCdBr7RCdiS36Uq)
 1. "国家秘匿魔法第二〇七一号", <ins>白横町ねる</ins>, （囚人役）如月彩葉, （衛兵役）神崎智也, （少女役）殊座, 白横町ねるボイスドラマシリーズ, vol. 1, no. 7, Mar. 2021. [Spotify](https://open.spotify.com/episode/0OSRTvhxp2JCFrakDdQGFZ)
