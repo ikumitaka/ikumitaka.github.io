@@ -58,3 +58,10 @@
 1. "作り話", <ins>白横町ねる</ins>, （女A役）殊座, （女王役）紅原ユウ子, 白横町ねるボイスドラマシリーズ, vol. 1, no. 6, Jan. 2021. [Spotify](https://open.spotify.com/episode/1MGP8pdG9hHebCmWsJ8BNp)
 1. "神樹エーディオリア", <ins>白横町ねる</ins>, （少女役）殊座, （ナレーター）藤堂れんげ, 白横町ねるボイスドラマシリーズ, vol. 1, no. 10, Dec. 2020. [Spotify](https://open.spotify.com/episode/4QDdkZ8EAHgTkPSfbExGTQ)
 1. "カテゴライズ", <ins>白横町ねる</ins>, （少女役・幼女役）常盤はなこ, （母親役）殊座, 白横町ねるボイスドラマシリーズ, vol. 1, no. 9, Dec. 2020. [Spotify](https://open.spotify.com/episode/5E09wSI00DlETApCW7SVO6)
+
+***
+
+## Music
+
+1. 白横町ねる名義にて『RadioTalk・知的好奇心ライブ』に楽曲提供
+1. つき名義にて『ぴこのスコア』で開催された作曲コンテストに参加
