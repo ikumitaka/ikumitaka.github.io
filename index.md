@@ -23,6 +23,8 @@
 
 ## Voice Drama
 
+1. "トモシビ", <ins>白横町ねる</ins>, （魔女A役）鳴坂みあ, （魔女B役）えもこ, 白横町ねるボイスドラマシリーズ, vol. 3, no. 11. 未発表
+1. "不可逆の世界", <ins>白横町ねる</ins>, （魔女A役）みもざねむ, （魔女B役）柊木こよみ, 白横町ねるボイスドラマシリーズ, vol. 3, no. 1. 未発表
 1. "美しいもの", <ins>白横町ねる</ins>, （魔女A役）みもざねむ, （魔女B役）藤村莉央, 白横町ねるボイスドラマシリーズ, vol. 3, no. 5, Mar. 2022. [Spotify](https://open.spotify.com/episode/4S8aCgg1Xy5HaxeJKVnx1G)
 1. "金色の天秤", <ins>白横町ねる</ins>, （魔女A役）ごま豆乳, （魔女B役）柊木こよみ, 白横町ねるボイスドラマシリーズ, vol. 3, no. 4, Feb. 2022. [Spotify](https://open.spotify.com/episode/6NGuZqIOZGGiS6cMxkGezw)
 1. "リラックスタイム", <ins>白横町ねる</ins>, （魔女A役）みもざねむ, （魔女B役）藤村莉央, 白横町ねるボイスドラマシリーズ, vol. 3, no. 2, Feb. 2022. [Spotify](https://open.spotify.com/episode/2mvoNwR312sWbtIGyn9RPi)
