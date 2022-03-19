@@ -23,6 +23,7 @@
 
 ## Voice Drama
 
+1. "アリエスの白", <ins>白横町ねる</ins>, （アリエス役）夜宵紫苑, 白横町ねるボイスドラマシリーズ, vol. 3, no. 13, Mar. 2022. [Spotify](https://open.spotify.com/episode/3l5RbnpishnUaJ7rdBRyli)
 1. "トモシビ", <ins>白横町ねる</ins>, （魔女A役）鳴坂みあ, （魔女B役）えもこ, 白横町ねるボイスドラマシリーズ, vol. 3, no. 11, Mar. 2022. [Spotify](https://open.spotify.com/episode/2krbpEBQjjjXameRy5PQis)
 1. "不可逆の世界", <ins>白横町ねる</ins>, （魔女A役）みもざねむ, （魔女B役）柊木こよみ, 白横町ねるボイスドラマシリーズ, vol. 3, no. 1. 未発表
 1. "美しいもの", <ins>白横町ねる</ins>, （魔女A役）みもざねむ, （魔女B役）藤村莉央, 白横町ねるボイスドラマシリーズ, vol. 3, no. 5, Mar. 2022. [Spotify](https://open.spotify.com/episode/4S8aCgg1Xy5HaxeJKVnx1G)
