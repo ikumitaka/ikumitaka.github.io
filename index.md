@@ -9,7 +9,7 @@
 
 ## Novel
 
-1. "支配者になろう　～博識女神による転生前のチートスキル講座～", <ins>伊住汲高</ins>, （イラスト）gri, Apr. 2022. 出版予定
+1. "支配者になろう　～博識女神による転生前のチートスキル講座～", <ins>伊住汲高</ins>, （イラスト）gri, Apr. 2022. [Kindle](https://www.amazon.co.jp/dp/B09XBLZY7V)
 1. "いつわりの魔女　～この世界の秘密を知らないあなたへ～", <ins>白横町ねる</ins>, Nov. 2021. ~~NovelUpPlus~~
 1. "異端の魔女は花を咲かせる", <ins>白横町ねる</ins>, Oct. 2021. [Kakuyomu](https://kakuyomu.jp/works/16816700428012816261)
 1. "新訳 白雪姫", <ins>白横町ねる</ins>, （イラスト）もくの木, Sep. 2021. [Everystar](https://estar.jp/novels/25871172) [AlphaPolis](https://www.alphapolis.co.jp/novel/437787486/400539592)
