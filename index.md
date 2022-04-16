@@ -23,6 +23,7 @@
 
 ## Voice Drama
 
+1. "静かなる戦争", <ins>白横町ねる</ins>, （姉役）浅見ゆい, （妹役）金山華奈, 白横町ねるボイスドラマシリーズ, vol. 4, no. 10, Apr. 2022. [Spotify](https://open.spotify.com/episode/6IwcupsMISdyMU6i142EWl)
 1. "つながりは想像を超えて", <ins>白横町ねる</ins>, （姉役）イヅカ, （妹役）乃花こより, 白横町ねるボイスドラマシリーズ, vol. 4, no. 4, Apr. 2022. [Spotify](https://open.spotify.com/episode/12zvUDMJlYAInI7hx3jeg9)
 1. "ふたつのホタル", <ins>白横町ねる</ins>, （姉役）ゆね, （妹役）恋羽める, 白横町ねるボイスドラマシリーズ, vol. 4, no. 1, Apr. 2022. [Spotify](https://open.spotify.com/episode/7JQmOidNIXCLhHlkwku8S4)
 1. "アリエスの白", <ins>白横町ねる</ins>, （アリエス役）夜宵紫苑, 白横町ねるボイスドラマシリーズ, vol. 3, no. 13, Mar. 2022. [Spotify](https://open.spotify.com/episode/3l5RbnpishnUaJ7rdBRyli)
