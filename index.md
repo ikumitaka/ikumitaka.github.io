@@ -10,12 +10,12 @@
 ## Novel
 
 1. "支配者になろう　～博識女神による転生前のチートスキル講座～", <ins>伊住汲高</ins>, （イラスト）gri, Apr. 2022. [Kindle](https://www.amazon.co.jp/dp/B09XBLZY7V)
-1. "いつわりの魔女　～この世界の秘密を知らないあなたへ～", <ins>白横町ねる</ins>, Nov. 2021. ~~NovelUpPlus~~
+1. "いつわりの魔女　～この世界の秘密を知らないあなたへ～", <ins>白横町ねる</ins>, Nov. 2021. [Kindle](https://www.amazon.co.jp/dp/B09XBLZY7V)
 1. "異端の魔女は花を咲かせる", <ins>白横町ねる</ins>, Oct. 2021. [Kakuyomu](https://kakuyomu.jp/works/16816700428012816261)
 1. "新訳 白雪姫", <ins>白横町ねる</ins>, （イラスト）もくの木, Sep. 2021. [Everystar](https://estar.jp/novels/25871172) [AlphaPolis](https://www.alphapolis.co.jp/novel/437787486/400539592)
 1. "拒絶する力", <ins>白横町ねる</ins>, Jun. 2021. ~~Kindle~~
 1. "新世界には空がない", <ins>白横町ねる</ins>, （イラスト）ぴーす, Jun. 2021. [Kindle](https://www.amazon.co.jp/dp/B097L7CFQ8)
-1. "聖女追放　～私が去ったあとは病で国は大変なことになっているでしょう～", <ins>白横町ねる</ins>, （イラスト）MOフ, Jan. 2021. [Everystar](https://estar.jp/novels/25772581)
+1. "聖女追放　～私が去ったあとは病で国は大変なことになっているでしょう～", <ins>白横町ねる</ins>, （イラスト）MOフ, Jan. 2021. [Everystar](https://estar.jp/novels/25772581)  [AlphaPolis](https://www.alphapolis.co.jp/novel/437787486/579455499)
 1. "戦いに敗れた勇者のわたしは魔王の秘書として働くことになりました。", <ins>白横町ねる</ins>, （イラスト）おむ烈, Aug. 2020. [Kindle](https://www.amazon.co.jp/dp/B094RGNMV5)
 1. "腕輪の街、サクラギリシャ", <ins>白横町ねる</ins>, May 2020. [Everystar](https://estar.jp/novels/25643061)
 
