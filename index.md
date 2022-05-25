@@ -23,6 +23,7 @@
 
 ## Voice Drama
 
+1. "人は悪を求める", <ins>白横町ねる</ins>, （姉役）浅見ゆい, （妹役）音枝優日, 白横町ねるボイスドラマシリーズ, vol. 4, no. 7, May 2022. [Spotify](https://open.spotify.com/episode/5Fk4KOo0KgpqLqqEG7hg6N)
 1. "事実の弱さを知ったから", <ins>白横町ねる</ins>, （姉役）イヅカ, （妹役）瀬戸ちとせ, 白横町ねるボイスドラマシリーズ, vol. 4, no. 6, May 2022. [Spotify](https://open.spotify.com/episode/6RMTVVrUDmHGxyhtJ6blTa)
 1. "大樹の下で", <ins>白横町ねる</ins>, （姉役）恋羽める, （妹役）木ノ実もも, 白横町ねるボイスドラマシリーズ, vol. 4, no. 8, May 2022. [Spotify](https://open.spotify.com/episode/4onq4ZcrmjIU5pufghPGnL)
 1. "科学と御心", <ins>白横町ねる</ins>, （姉役）瀬戸ちとせ, （妹役）ゆね, 白横町ねるボイスドラマシリーズ, vol. 4, no. 9, Apr. 2022. [Spotify](https://open.spotify.com/episode/6X0J6ztupeI0toN5esIhdm)
