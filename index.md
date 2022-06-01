@@ -23,6 +23,7 @@
 
 ## Voice Drama
 
+1. "三色の地図", <ins>白横町ねる</ins>, （姉役）イヅカ, （妹役）木ノ実もも, 白横町ねるボイスドラマシリーズ, vol. 4, no. 5, Jun. 2022. [Spotify](https://open.spotify.com/episode/5rACEzJlTi6mur4K7WiNSO)
 1. "人は悪を求める", <ins>白横町ねる</ins>, （姉役）浅見ゆい, （妹役）音枝優日, 白横町ねるボイスドラマシリーズ, vol. 4, no. 7, May 2022. [Spotify](https://open.spotify.com/episode/5Fk4KOo0KgpqLqqEG7hg6N)
 1. "事実の弱さを知ったから", <ins>白横町ねる</ins>, （姉役）イヅカ, （妹役）瀬戸ちとせ, 白横町ねるボイスドラマシリーズ, vol. 4, no. 6, May 2022. [Spotify](https://open.spotify.com/episode/6RMTVVrUDmHGxyhtJ6blTa)
 1. "大樹の下で", <ins>白横町ねる</ins>, （姉役）恋羽める, （妹役）木ノ実もも, 白横町ねるボイスドラマシリーズ, vol. 4, no. 8, May 2022. [Spotify](https://open.spotify.com/episode/4onq4ZcrmjIU5pufghPGnL)
@@ -32,7 +33,7 @@
 1. "ふたつのホタル", <ins>白横町ねる</ins>, （姉役）ゆね, （妹役）恋羽める, 白横町ねるボイスドラマシリーズ, vol. 4, no. 1, Apr. 2022. [Spotify](https://open.spotify.com/episode/7JQmOidNIXCLhHlkwku8S4)
 1. "アリエスの白", <ins>白横町ねる</ins>, （アリエス役）夜宵紫苑, 白横町ねるボイスドラマシリーズ, vol. 3, no. 13, Mar. 2022. [Spotify](https://open.spotify.com/episode/3l5RbnpishnUaJ7rdBRyli)
 1. "トモシビ", <ins>白横町ねる</ins>, （魔女A役）鳴坂みあ, （魔女B役）えもこ, 白横町ねるボイスドラマシリーズ, vol. 3, no. 11, Mar. 2022. [Spotify](https://open.spotify.com/episode/2krbpEBQjjjXameRy5PQis)
-1. "不可逆の世界", <ins>白横町ねる</ins>, （魔女A役）みもざねむ, （魔女B役）柊木こよみ, 白横町ねるボイスドラマシリーズ, vol. 3, no. 1. 未発表
+1. "不可逆の世界", <ins>白横町ねる</ins>, （魔女A役）みもざねむ, （魔女B役）柊木こよみ, 白横町ねるボイスドラマシリーズ, vol. 3, no. 1. 未公開
 1. "美しいもの", <ins>白横町ねる</ins>, （魔女A役）みもざねむ, （魔女B役）藤村莉央, 白横町ねるボイスドラマシリーズ, vol. 3, no. 5, Mar. 2022. [Spotify](https://open.spotify.com/episode/4S8aCgg1Xy5HaxeJKVnx1G)
 1. "金色の天秤", <ins>白横町ねる</ins>, （魔女A役）ごま豆乳, （魔女B役）柊木こよみ, 白横町ねるボイスドラマシリーズ, vol. 3, no. 4, Feb. 2022. [Spotify](https://open.spotify.com/episode/6NGuZqIOZGGiS6cMxkGezw)
 1. "リラックスタイム", <ins>白横町ねる</ins>, （魔女A役）みもざねむ, （魔女B役）藤村莉央, 白横町ねるボイスドラマシリーズ, vol. 3, no. 2, Feb. 2022. [Spotify](https://open.spotify.com/episode/2mvoNwR312sWbtIGyn9RPi)
