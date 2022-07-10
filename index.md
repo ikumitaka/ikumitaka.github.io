@@ -23,6 +23,7 @@
 
 ## Voice Drama
 
+1. "シャボン玉", <ins>白横町ねる</ins>, （姉役）音枝優日, （妹役）夜宵紫苑, 白横町ねるボイスドラマシリーズ, vol. 4, no. 12, Jul. 2022. [Spotify](https://open.spotify.com/episode/6pxHk0nP2akZlEu9C6DK1h)
 1. "ハッピー・バースデー", <ins>白横町ねる</ins>, （姉役）乃花こより, （妹役）夜宵紫苑, 白横町ねるボイスドラマシリーズ, vol. 4, no. 3, Jun. 2022. [Spotify](https://open.spotify.com/episode/5WOS30VySALYa5lEVjlNdj)
 1. "夜空を見上げれば", <ins>白横町ねる</ins>, （姉役）恋羽める, （妹役）ゆね, 白横町ねるボイスドラマシリーズ, vol. 4, no. 11, Jun. 2022. [Spotify](https://open.spotify.com/episode/3772v7FoLU8XsTD4DA0t2O)
 1. "サクラの教え", <ins>白横町ねる</ins>, （姉役）乃花こより, （妹役）夜宵紫苑, 白横町ねるボイスドラマシリーズ, vol. 4, no. 2, Jun. 2022. [Spotify](https://open.spotify.com/episode/2p6ok7QsGnEoLq6LjKEpSj)
